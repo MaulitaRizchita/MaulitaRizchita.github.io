@@ -1,1 +1,1 @@
-# MaulitaRizchita.github.io
+# Rizchita.github.io
